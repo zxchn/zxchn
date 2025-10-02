@@ -1,5 +1,10 @@
  # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I am currently not working on any major projects.
+👯 I am open to collaborating on video editing and creative content projects.
+🤝 I am seeking opportunities to further develop and improve my video editing skills.
+🌱 I am currently learning Adobe After Effects and enhancing my editing techniques.
+💬 You may reach out to me regarding video editing, creative content, or related topics.
+⚡ Fun fact: I enjoy playing chess, watching food-related content, and creating TikTok edits.
 
 
 ## 🌐 Socials:
